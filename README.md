@@ -47,3 +47,8 @@ High Growth Potential: Positioned as a leader in the hyperlocal delivery space.
 Addressing Challenges: Improving delivery efficiency, inventory management, and product quality will enhance trust and reliability.
 Global Expansion Opportunities: If optimized, Blinkit can enter international markets, including the U.S., leveraging demand for rapid delivery services.
 Long-Term Impact: By refining its model, Blinkit has the potential to redefine hyperlocal delivery standards worldwide.
+
+
+Webiste for More information:
+https://blinkit.com/
+https://www.meritshot.com/blinkit-case-study
